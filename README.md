@@ -1,2 +1,2 @@
 # schoolhands
-tg - @tancorDisk0
+Telegram  @tancorDisk0
